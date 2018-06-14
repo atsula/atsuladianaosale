@@ -1,2 +1,2 @@
-# atsuladianaosale
-Graphic Designer
+# Diana Atsula
+ Graphic Designer
